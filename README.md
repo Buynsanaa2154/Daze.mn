@@ -1,0 +1,2 @@
+# Daze.mn
+Mongolian esport
